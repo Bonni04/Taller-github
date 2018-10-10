@@ -15,4 +15,8 @@ A demo version of this project can be found [here](https://riddle-bencomo.heroku
 
 # Sources:
     * https://riddles.fyi/funny-riddles/page/8/
-hola mundo cruel de 
+
+
+
+
+POR AMOR A DIOS FUNCIONA TE LO PIDO DE TODO CORAZON
